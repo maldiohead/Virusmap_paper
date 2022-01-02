@@ -5,6 +5,6 @@ industry should occur some changes in the business model just what happened at o
 
 
 
-**If you want to build the virusmap, pls send me the email: maldiohead@outlook.com or DM me via my discord: virustacker**
+**If you want to build the virusmap, pls send me the email: maldiohead@outlook.com or DM me via my discord: virustacker#3896**
 
 
